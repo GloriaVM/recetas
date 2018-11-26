@@ -4,4 +4,4 @@ Los pocos ingredientes necesarios son la clave de su éxito y para hacer una buen
 175 gramos de cebolla blanca.
 7 huevos grandes.
 Aceite de oliva virgen extra.
-Sal (a discreción)
+Sal (a gusto)
